@@ -11,6 +11,7 @@ if [[ "$REPO_DIR" == "chateaumaxmin.info" ]] && [[ "$REPO_PARENT_DIR" == "_repos
 	       -not -iname '.git' \
 	       -not -iname '.gitignore' \
 	       -not -iname '_config.yml' \
+	       -not -iname 'atom.xml' \
 	       -not -iname 'Gemfile' \
 	       -not -iname 'package.json' \
 	       -not -iname 'README.md' \
