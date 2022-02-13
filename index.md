@@ -1,4 +1,4 @@
-# 🏡 Château MaxMin() 🏡
+# <span aria-hidden="true">🏡</span> Château MaxMin() <span aria-hidden="true">🏡</span>
 
 ## Engagement Photos
 
