@@ -4,4 +4,4 @@ Len Montgomery and Nathan Acks talk to their mothers, Susan Montgomery and Patri
 
 - - - -
 
-📅 June 29, 2019 19:01:04
+<span aria-hidden="true">📅</span> June 29, 2019 19:01:04

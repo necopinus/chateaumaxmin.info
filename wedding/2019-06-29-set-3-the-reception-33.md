@@ -4,4 +4,4 @@ Kiran Majid waves a streamer at Sam Gilmore during Len Montgomery and Nathan Ack
 
 - - - -
 
-📅 June 29, 2019 18:13:58
+<span aria-hidden="true">📅</span> June 29, 2019 18:13:58

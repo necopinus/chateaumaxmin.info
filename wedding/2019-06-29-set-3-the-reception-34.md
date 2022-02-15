@@ -4,4 +4,4 @@ Sam Gilmore sticks her tongue out at Kiran Majid during Len Montgomery and Natha
 
 - - - -
 
-📅 June 29, 2019 18:14:01
+<span aria-hidden="true">📅</span> June 29, 2019 18:14:01

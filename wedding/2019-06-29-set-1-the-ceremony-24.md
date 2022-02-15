@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery’s wedding in Kevin Gilmore & Pam Dayton’s “
 
 - - - -
 
-📅 June 29, 2019 15:44:07
+<span aria-hidden="true">📅</span> June 29, 2019 15:44:07

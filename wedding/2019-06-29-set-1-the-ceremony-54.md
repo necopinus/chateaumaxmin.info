@@ -4,4 +4,4 @@ The alter at Nathan Acks and Len Montgomery’s wedding. Photo taken by [Carl Bo
 
 - - - -
 
-📅 June 29, 2019 16:15:13
+<span aria-hidden="true">📅</span> June 29, 2019 16:15:13

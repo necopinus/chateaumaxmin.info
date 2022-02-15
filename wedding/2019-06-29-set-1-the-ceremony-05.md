@@ -4,4 +4,4 @@ Len Montgomery does her makeup before her wedding. Photo taken in Kevin Gilmore 
 
 - - - -
 
-📅 June 29, 2019 15:08:59
+<span aria-hidden="true">📅</span> June 29, 2019 15:08:59

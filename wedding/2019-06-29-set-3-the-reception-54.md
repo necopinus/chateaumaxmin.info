@@ -4,4 +4,4 @@ Leah Whitesel and Ryen Schimerman talk while Jasmine Chiang and Jen Vox look on 
 
 - - - -
 
-📅 June 29, 2019 19:30:05
+<span aria-hidden="true">📅</span> June 29, 2019 19:30:05

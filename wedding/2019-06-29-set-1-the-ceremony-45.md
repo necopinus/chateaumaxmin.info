@@ -4,4 +4,4 @@ Nathan Acks talks to Megan Fitzgerald and John Michael Watkins shortly after his
 
 - - - -
 
-📅 June 29, 2019 16:00:58
+<span aria-hidden="true">📅</span> June 29, 2019 16:00:58

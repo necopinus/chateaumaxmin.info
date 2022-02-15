@@ -4,4 +4,4 @@ Stella (Pam Dayton and Kevin Gilmore’s dog) disrupts Nathan Acks and Len Montg
 
 - - - -
 
-📅 June 29, 2019 15:40:29
+<span aria-hidden="true">📅</span> June 29, 2019 15:40:29

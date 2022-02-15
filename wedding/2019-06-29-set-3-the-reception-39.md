@@ -4,4 +4,4 @@ Dana Koziol embraces Susan Montgomery during Nathan Acks and Len Montgomery’s 
 
 - - - -
 
-📅 June 29, 2019 18:26:23
+<span aria-hidden="true">📅</span> June 29, 2019 18:26:23

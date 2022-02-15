@@ -4,4 +4,4 @@ Len Montgomery talking to guests after her wedding. Leah Whitesel and Nathan Ack
 
 - - - -
 
-📅 June 29, 2019 15:58:10
+<span aria-hidden="true">📅</span> June 29, 2019 15:58:10

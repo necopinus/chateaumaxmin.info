@@ -4,4 +4,4 @@ Leah Whitesel gives a toast at Nathan Acks and Len Montgomery’s wedding recept
 
 - - - -
 
-📅 June 29, 2019 19:43:16
+<span aria-hidden="true">📅</span> June 29, 2019 19:43:16

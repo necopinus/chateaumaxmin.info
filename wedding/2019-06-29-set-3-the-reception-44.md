@@ -4,4 +4,4 @@ Scaia Sprague, Sylas Rigridge, and Sarah Morrison play on [The Mercury Cafe](htt
 
 - - - -
 
-📅 June 29, 2019 18:36:26
+<span aria-hidden="true">📅</span> June 29, 2019 18:36:26

@@ -4,4 +4,4 @@ Alex Acks talks to Nathan Acks at his wedding reception. Photo taken at [The Mer
 
 - - - -
 
-📅 June 29, 2019 17:54:58
+<span aria-hidden="true">📅</span> June 29, 2019 17:54:58

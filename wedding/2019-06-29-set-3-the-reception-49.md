@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery talk to David Starman, Emily Magnaghi, and Jessie
 
 - - - -
 
-📅 June 29, 2019 19:10:35
+<span aria-hidden="true">📅</span> June 29, 2019 19:10:35

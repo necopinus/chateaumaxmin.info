@@ -4,4 +4,4 @@ Leah Whitesel talks to Len Montgomery and Nathan Acks shortly before their weddi
 
 - - - -
 
-📅 June 29, 2019 15:17:19
+<span aria-hidden="true">📅</span> June 29, 2019 15:17:19

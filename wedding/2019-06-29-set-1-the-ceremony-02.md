@@ -4,4 +4,4 @@ Sherri Daily does Nathan Acks’ hair while Avalon Daily and Andre Esteves look 
 
 - - - -
 
-📅 June 29, 2019 15:05:45
+<span aria-hidden="true">📅</span> June 29, 2019 15:05:45

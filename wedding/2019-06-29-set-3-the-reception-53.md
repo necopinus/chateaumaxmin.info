@@ -4,4 +4,4 @@ Robyn Goodenow, Shaun Goodenow, and Nathan Acks talk at his wedding reception. P
 
 - - - -
 
-📅 June 29, 2019 19:19:05
+<span aria-hidden="true">📅</span> June 29, 2019 19:19:05

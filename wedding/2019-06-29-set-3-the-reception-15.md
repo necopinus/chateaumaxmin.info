@@ -4,4 +4,4 @@ Crystal Henry at Len Montgomery and Nathan Acks’ wedding reception. Photo take
 
 - - - -
 
-📅 June 29, 2019 17:48:36
+<span aria-hidden="true">📅</span> June 29, 2019 17:48:36

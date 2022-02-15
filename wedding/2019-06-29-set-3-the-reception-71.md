@@ -4,4 +4,4 @@ Sylas Rigridge eats a cupcake during Nathan Acks and Len Montgomery’s wedding 
 
 - - - -
 
-📅 June 29, 2019 19:50:43
+<span aria-hidden="true">📅</span> June 29, 2019 19:50:43

@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery talk to Marcia Eldridge during their wedding rece
 
 - - - -
 
-📅 June 29, 2019 19:32:25
+<span aria-hidden="true">📅</span> June 29, 2019 19:32:25

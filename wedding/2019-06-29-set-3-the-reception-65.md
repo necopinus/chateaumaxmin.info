@@ -4,4 +4,4 @@ Sylas Rigridge reaches for a cupcake as Harper Delattre prepares to grab a deser
 
 - - - -
 
-📅 June 29, 2019 19:50:01
+<span aria-hidden="true">📅</span> June 29, 2019 19:50:01

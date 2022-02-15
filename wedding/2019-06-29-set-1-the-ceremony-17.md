@@ -4,4 +4,4 @@ Simon Vox performs Nathan Acks and Len Montgomery’s wedding. Photo taken by [C
 
 - - - -
 
-📅 June 29, 2019 15:37:33
+<span aria-hidden="true">📅</span> June 29, 2019 15:37:33

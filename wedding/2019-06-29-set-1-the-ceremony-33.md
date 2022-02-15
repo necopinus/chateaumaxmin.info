@@ -4,4 +4,4 @@ Len Montgomery and Nathan Acks exchange rings during their wedding ceremony. Pho
 
 - - - -
 
-📅 June 29, 2019 15:49:34
+<span aria-hidden="true">📅</span> June 29, 2019 15:49:34

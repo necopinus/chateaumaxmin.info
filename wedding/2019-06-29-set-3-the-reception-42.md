@@ -4,4 +4,4 @@ Mo Kirk, Justine Barrone, and Faye Park talk during Len Montgomery and Nathan Ac
 
 - - - -
 
-📅 June 29, 2019 18:28:45
+<span aria-hidden="true">📅</span> June 29, 2019 18:28:45

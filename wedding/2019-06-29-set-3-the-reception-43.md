@@ -4,4 +4,4 @@ Sylas Rigridge works on a drawing at Nathan Acks and Len Montgomery’s wedding 
 
 - - - -
 
-📅 June 29, 2019 18:36:17
+<span aria-hidden="true">📅</span> June 29, 2019 18:36:17

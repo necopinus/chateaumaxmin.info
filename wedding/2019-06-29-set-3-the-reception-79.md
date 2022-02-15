@@ -4,4 +4,4 @@ Anne Cover and Tessa Przybyski at Len Montgomery and Nathan Acks’ wedding rece
 
 - - - -
 
-📅 June 29, 2019 20:17:08
+<span aria-hidden="true">📅</span> June 29, 2019 20:17:08

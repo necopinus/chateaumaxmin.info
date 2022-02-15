@@ -4,4 +4,4 @@ Len Montgomery and Nathan Acks talk to Chris Lindstrom at their wedding receptio
 
 - - - -
 
-📅 June 29, 2019 17:31:57
+<span aria-hidden="true">📅</span> June 29, 2019 17:31:57

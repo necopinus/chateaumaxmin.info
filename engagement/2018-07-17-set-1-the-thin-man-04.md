@@ -4,4 +4,4 @@ The Nathan Acks and Len Montgomery engagement photo-shoot. Taken at [The Thin Ma
 
 - - - -
 
-📅 July 17, 2018 18:21:15
+<span aria-hidden="true">📅</span> July 17, 2018 18:21:15

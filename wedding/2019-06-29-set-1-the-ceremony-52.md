@@ -4,4 +4,4 @@ Len Montgomery talks to David Rossini shortly after her wedding. Photo taken by 
 
 - - - -
 
-📅 June 29, 2019 16:09:04
+<span aria-hidden="true">📅</span> June 29, 2019 16:09:04

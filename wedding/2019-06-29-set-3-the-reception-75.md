@@ -4,4 +4,4 @@ Quill Jason-Wilcox looks around outside of [The Mercury Cafe](http://mercurycafe
 
 - - - -
 
-📅 June 29, 2019 20:01:58
+<span aria-hidden="true">📅</span> June 29, 2019 20:01:58

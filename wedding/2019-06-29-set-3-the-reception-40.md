@@ -4,4 +4,4 @@ Bonnie Clark and Len Montgomery talk at the latter’s wedding reception. Photo 
 
 - - - -
 
-📅 June 29, 2019 18:27:14
+<span aria-hidden="true">📅</span> June 29, 2019 18:27:14

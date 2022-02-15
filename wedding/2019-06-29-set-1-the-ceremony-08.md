@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery just before their wedding. Photo taken in Kevin G
 
 - - - -
 
-📅 June 29, 2019 15:16:17
+<span aria-hidden="true">📅</span> June 29, 2019 15:16:17

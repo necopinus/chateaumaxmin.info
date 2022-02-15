@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery after signing their marriage license. Photo taken
 
 - - - -
 
-📅 June 29, 2019 15:52:47
+<span aria-hidden="true">📅</span> June 29, 2019 15:52:47

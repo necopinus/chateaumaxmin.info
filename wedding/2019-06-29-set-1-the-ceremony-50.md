@@ -4,4 +4,4 @@ David Rossini with his children Gabe Chafetz Rossini and Eliza Chafetz Rossini, 
 
 - - - -
 
-📅 June 29, 2019 16:07:58
+<span aria-hidden="true">📅</span> June 29, 2019 16:07:58

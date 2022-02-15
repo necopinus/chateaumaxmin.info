@@ -4,4 +4,4 @@ Nathan Acks stands near one side of Kevin Gilmore & Pam Dayton’s back yard sho
 
 - - - -
 
-📅 June 29, 2019 15:32:08
+<span aria-hidden="true">📅</span> June 29, 2019 15:32:08

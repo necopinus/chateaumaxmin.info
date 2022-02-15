@@ -4,4 +4,4 @@ Len Montgomery talks to Tessa Przybyski shortly after her wedding. Photo taken b
 
 - - - -
 
-📅 June 29, 2019 15:59:36
+<span aria-hidden="true">📅</span> June 29, 2019 15:59:36

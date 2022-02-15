@@ -4,4 +4,4 @@ Len Montgomery talks to Alec Sprague and John Michael Watkins shortly after her 
 
 - - - -
 
-📅 June 29, 2019 16:09:52
+<span aria-hidden="true">📅</span> June 29, 2019 16:09:52

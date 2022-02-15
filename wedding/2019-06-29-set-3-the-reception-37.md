@@ -4,4 +4,4 @@ Tessa Przybyski, Anne Cover, and Shirls Gilmore talk during Nathan Acks and Len 
 
 - - - -
 
-📅 June 29, 2019 18:23:17
+<span aria-hidden="true">📅</span> June 29, 2019 18:23:17

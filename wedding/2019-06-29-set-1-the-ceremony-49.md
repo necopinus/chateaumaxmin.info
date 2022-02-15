@@ -4,4 +4,4 @@ Len Montgomery talks to Stephen Ulrich and his guest Hope shortly after her wedd
 
 - - - -
 
-📅 June 29, 2019 16:04:34
+<span aria-hidden="true">📅</span> June 29, 2019 16:04:34

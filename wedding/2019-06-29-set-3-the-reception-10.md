@@ -4,4 +4,4 @@ Len Montgomery greets a guest at her wedding reception. Photo taken at [The Merc
 
 - - - -
 
-📅 June 29, 2019 17:37:31
+<span aria-hidden="true">📅</span> June 29, 2019 17:37:31

@@ -4,4 +4,4 @@ Simon Vox performs Nathan Acks and Len Montgomery’s wedding. Pam Dayton, Kevin
 
 - - - -
 
-📅 June 29, 2019 15:38:33
+<span aria-hidden="true">📅</span> June 29, 2019 15:38:33

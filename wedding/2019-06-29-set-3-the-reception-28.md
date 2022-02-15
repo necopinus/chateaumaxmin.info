@@ -4,4 +4,4 @@ Dana Koziol embraces Len Montgomery at the latter’s wedding reception while Be
 
 - - - -
 
-📅 June 29, 2019 18:09:18
+<span aria-hidden="true">📅</span> June 29, 2019 18:09:18

@@ -4,4 +4,4 @@ Mischa Kucher Reid and Yana Kucher get some air during Nathan Acks and Len Montg
 
 - - - -
 
-📅 June 29, 2019 19:07:00
+<span aria-hidden="true">📅</span> June 29, 2019 19:07:00

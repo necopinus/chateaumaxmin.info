@@ -4,4 +4,4 @@ Richard Seeman and Nathan Acks embrace while Scot Weber looks on. Photo taken at
 
 - - - -
 
-📅 June 29, 2019 17:33:30
+<span aria-hidden="true">📅</span> June 29, 2019 17:33:30

@@ -4,4 +4,4 @@ Len Montgomery and Nathan Acks goof off in the basement of Kevin Gilmore & Pam D
 
 - - - -
 
-📅 June 29, 2019 15:07:55
+<span aria-hidden="true">📅</span> June 29, 2019 15:07:55

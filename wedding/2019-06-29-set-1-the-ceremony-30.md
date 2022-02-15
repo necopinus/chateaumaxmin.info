@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery exchange vows during their wedding. Photo taken b
 
 - - - -
 
-📅 June 29, 2019 15:47:33
+<span aria-hidden="true">📅</span> June 29, 2019 15:47:33

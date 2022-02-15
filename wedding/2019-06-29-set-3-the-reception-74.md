@@ -4,4 +4,4 @@ Jyoti Jason-Miller changes Quill Jason-Wilcox’s diaper outside of [The Mercury
 
 - - - -
 
-📅 June 29, 2019 20:00:58
+<span aria-hidden="true">📅</span> June 29, 2019 20:00:58

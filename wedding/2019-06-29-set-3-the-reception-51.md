@@ -4,4 +4,4 @@ Stacey Hafner and Len Montgomery talk during the latter’s wedding reception. P
 
 - - - -
 
-📅 June 29, 2019 19:16:02
+<span aria-hidden="true">📅</span> June 29, 2019 19:16:02

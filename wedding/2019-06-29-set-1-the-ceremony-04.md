@@ -4,4 +4,4 @@ Sherri Daily touches up Nathan Acks’ hair while Len Montgomery gets ready for 
 
 - - - -
 
-📅 June 29, 2019 15:08:13
+<span aria-hidden="true">📅</span> June 29, 2019 15:08:13

@@ -4,4 +4,4 @@ Heather Sullivan and David Starman chat while Emily Magnaghi looks on during Nat
 
 - - - -
 
-📅 June 29, 2019 18:12:50
+<span aria-hidden="true">📅</span> June 29, 2019 18:12:50

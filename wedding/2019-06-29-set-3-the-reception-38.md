@@ -4,4 +4,4 @@ Dana Koziol laughs while Jessie Voci and Ben Montgomery look on. Photo taken at 
 
 - - - -
 
-📅 June 29, 2019 18:26:20
+<span aria-hidden="true">📅</span> June 29, 2019 18:26:20

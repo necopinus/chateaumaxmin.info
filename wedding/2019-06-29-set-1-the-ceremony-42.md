@@ -4,4 +4,4 @@ Len Montgomery talking to guests after her wedding. Alex Acks and Yana Kucher ca
 
 - - - -
 
-📅 June 29, 2019 15:57:00
+<span aria-hidden="true">📅</span> June 29, 2019 15:57:00

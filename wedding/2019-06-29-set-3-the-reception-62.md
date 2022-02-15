@@ -4,4 +4,4 @@ Ryen Schimerman gives a toast at Nathan Acks and Len Montgomery’s wedding rece
 
 - - - -
 
-📅 June 29, 2019 19:46:13
+<span aria-hidden="true">📅</span> June 29, 2019 19:46:13

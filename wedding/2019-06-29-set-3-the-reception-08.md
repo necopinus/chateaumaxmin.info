@@ -4,4 +4,4 @@ Scot Weber and Nathan Acks embrace while Len Montgomery talks to other guests du
 
 - - - -
 
-📅 June 29, 2019 17:33:34
+<span aria-hidden="true">📅</span> June 29, 2019 17:33:34

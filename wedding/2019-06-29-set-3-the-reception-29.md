@@ -4,4 +4,4 @@ Dana Koziol and Len Montgomery talk at the latter’s wedding reception. Photo t
 
 - - - -
 
-📅 June 29, 2019 18:09:43
+<span aria-hidden="true">📅</span> June 29, 2019 18:09:43

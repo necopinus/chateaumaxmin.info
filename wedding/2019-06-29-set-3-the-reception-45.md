@@ -4,4 +4,4 @@ Nathan Acks and Carolina Van Horn talk at the former’s wedding reception. Phot
 
 - - - -
 
-📅 June 29, 2019 18:38:54
+<span aria-hidden="true">📅</span> June 29, 2019 18:38:54

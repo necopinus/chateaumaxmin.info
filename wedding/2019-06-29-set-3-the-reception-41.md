@@ -4,4 +4,4 @@ Robyn Goodenow and Shaun Goodenow at Len Montgomery and Nathan Acks’ wedding r
 
 - - - -
 
-📅 June 29, 2019 18:28:19
+<span aria-hidden="true">📅</span> June 29, 2019 18:28:19

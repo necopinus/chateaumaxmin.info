@@ -4,4 +4,4 @@ Len Montgomery and Nathan Acks arrive at their wedding reception as Becky Stanfi
 
 - - - -
 
-📅 June 29, 2019 17:28:53
+<span aria-hidden="true">📅</span> June 29, 2019 17:28:53

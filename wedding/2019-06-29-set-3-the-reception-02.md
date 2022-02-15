@@ -4,4 +4,4 @@ Len Montgomery and Nathan Acks about to greet the guests at their wedding recept
 
 - - - -
 
-📅 June 29, 2019 17:29:14
+<span aria-hidden="true">📅</span> June 29, 2019 17:29:14

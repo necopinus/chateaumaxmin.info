@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery sign their marriage license as Leah Whitesel and 
 
 - - - -
 
-📅 June 29, 2019 15:51:06
+<span aria-hidden="true">📅</span> June 29, 2019 15:51:06

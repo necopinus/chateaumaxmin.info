@@ -4,4 +4,4 @@ Ryen Schimerman, Nathan Acks, and Len Montgomery at the latters’ wedding recep
 
 - - - -
 
-📅 June 29, 2019 19:54:42
+<span aria-hidden="true">📅</span> June 29, 2019 19:54:42

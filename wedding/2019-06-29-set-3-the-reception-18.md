@@ -4,4 +4,4 @@ Sylvia Broude and Emily Kelly-Fischer talk to Len Montgomery at her wedding rece
 
 - - - -
 
-📅 June 29, 2019 17:52:52
+<span aria-hidden="true">📅</span> June 29, 2019 17:52:52

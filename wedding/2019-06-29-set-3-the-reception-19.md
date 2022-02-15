@@ -4,4 +4,4 @@ Krista Stone-Manista talks to Len Montgomery at her wedding reception. Photo tak
 
 - - - -
 
-📅 June 29, 2019 17:53:47
+<span aria-hidden="true">📅</span> June 29, 2019 17:53:47

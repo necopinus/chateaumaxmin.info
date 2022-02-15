@@ -4,4 +4,4 @@ Andy MacDonald, Chris Lindstrom, and Justine Barrone laugh during Nathan Acks an
 
 - - - -
 
-📅 June 29, 2019 17:59:14
+<span aria-hidden="true">📅</span> June 29, 2019 17:59:14

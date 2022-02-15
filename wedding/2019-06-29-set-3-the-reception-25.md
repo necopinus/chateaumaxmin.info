@@ -4,4 +4,4 @@ Len Montgomery talking to guests at her wedding reception. Photo taken at [The M
 
 - - - -
 
-📅 June 29, 2019 18:02:48
+<span aria-hidden="true">📅</span> June 29, 2019 18:02:48

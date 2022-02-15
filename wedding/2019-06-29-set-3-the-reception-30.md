@@ -4,4 +4,4 @@ Patricia Acks and Sheldon Starman talk at Nathan Acks and Len Montgomery’s wed
 
 - - - -
 
-📅 June 29, 2019 18:11:45
+<span aria-hidden="true">📅</span> June 29, 2019 18:11:45

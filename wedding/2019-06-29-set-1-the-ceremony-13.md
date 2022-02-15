@@ -4,4 +4,4 @@ Nathan Acks meets Len Montgomery in the center of Kevin Gilmore & Pam Dayton’s
 
 - - - -
 
-📅 June 29, 2019 15:34:58
+<span aria-hidden="true">📅</span> June 29, 2019 15:34:58

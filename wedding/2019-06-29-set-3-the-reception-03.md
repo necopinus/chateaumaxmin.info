@@ -4,4 +4,4 @@ Len Montgomery hugs Dana Koziol during her wedding reception as Nathan Acks look
 
 - - - -
 
-📅 June 29, 2019 17:29:29
+<span aria-hidden="true">📅</span> June 29, 2019 17:29:29

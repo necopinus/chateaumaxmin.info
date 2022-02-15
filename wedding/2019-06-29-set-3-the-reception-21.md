@@ -4,4 +4,4 @@ Patricia Acks at Nathan Acks and Len Montgomery’s wedding reception. Photo tak
 
 - - - -
 
-📅 June 29, 2019 17:56:55
+<span aria-hidden="true">📅</span> June 29, 2019 17:56:55

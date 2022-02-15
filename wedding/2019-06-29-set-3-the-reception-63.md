@@ -4,4 +4,4 @@ Len Montgomery laughs with Nathan Acks during Ryen Schimerman’s toast at their
 
 - - - -
 
-📅 June 29, 2019 19:46:29
+<span aria-hidden="true">📅</span> June 29, 2019 19:46:29

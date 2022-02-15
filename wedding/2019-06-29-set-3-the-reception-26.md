@@ -4,4 +4,4 @@ Allison Rank and Toby Hurst chat with Stacey Hafner during Nathan Acks and Len M
 
 - - - -
 
-📅 June 29, 2019 18:04:12
+<span aria-hidden="true">📅</span> June 29, 2019 18:04:12

@@ -4,4 +4,4 @@ Robyn Goodenow talks with Crystal Henry while Alan Scheer looks on. Photo taken 
 
 - - - -
 
-📅 June 29, 2019 17:49:15
+<span aria-hidden="true">📅</span> June 29, 2019 17:49:15

@@ -4,4 +4,4 @@ One of the formal family photos from Len Montgomery and Nathan Acks’ wedding. 
 
 - - - -
 
-📅 June 29, 2019 16:31:18
+<span aria-hidden="true">📅</span> June 29, 2019 16:31:18

@@ -4,4 +4,4 @@ Scaia Sprague eats strawberries while Sylas Rigridge attempts to make off with t
 
 - - - -
 
-📅 June 29, 2019 19:50:14
+<span aria-hidden="true">📅</span> June 29, 2019 19:50:14

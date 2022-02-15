@@ -4,4 +4,4 @@ Krista Stone-Manista takes a photo of Len Montgomery and Nathan Acks during thei
 
 - - - -
 
-📅 June 29, 2019 17:30:57
+<span aria-hidden="true">📅</span> June 29, 2019 17:30:57

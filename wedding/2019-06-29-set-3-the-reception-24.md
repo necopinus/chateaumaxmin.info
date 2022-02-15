@@ -4,4 +4,4 @@ Andy MacDonald, Chris Lindstrom, Len Montgomery, and Justine Barrone talk at Nat
 
 - - - -
 
-📅 June 29, 2019 17:59:31
+<span aria-hidden="true">📅</span> June 29, 2019 17:59:31

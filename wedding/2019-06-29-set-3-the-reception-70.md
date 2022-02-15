@@ -4,4 +4,4 @@ Sylas Rigridge gets ready to eat a cupcake while Nathan Acks and Len Montgomery 
 
 - - - -
 
-📅 June 29, 2019 19:50:34
+<span aria-hidden="true">📅</span> June 29, 2019 19:50:34

@@ -4,4 +4,4 @@ Andrew Acks and Mary Ellen Neumann talk while Anne Cover and Shirls Gilmore look
 
 - - - -
 
-📅 June 29, 2019 18:09:01
+<span aria-hidden="true">📅</span> June 29, 2019 18:09:01

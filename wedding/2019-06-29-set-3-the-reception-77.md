@@ -4,4 +4,4 @@ Andrea Lockard and Susan Montgomery chat during Nathan Acks and Len Montgomery�
 
 - - - -
 
-📅 June 29, 2019 20:16:35
+<span aria-hidden="true">📅</span> June 29, 2019 20:16:35

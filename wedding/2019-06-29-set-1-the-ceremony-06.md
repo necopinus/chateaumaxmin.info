@@ -4,4 +4,4 @@ Len Montgomery just before her wedding. Photo taken in Kevin Gilmore & Pam Dayto
 
 - - - -
 
-📅 June 29, 2019 15:15:49
+<span aria-hidden="true">📅</span> June 29, 2019 15:15:49

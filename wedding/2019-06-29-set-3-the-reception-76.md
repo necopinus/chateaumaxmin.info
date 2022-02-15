@@ -4,4 +4,4 @@ Marit MacDonald and Harper Delattre pose on [The Mercury Cafe](http://mercurycaf
 
 - - - -
 
-📅 June 29, 2019 20:13:01
+<span aria-hidden="true">📅</span> June 29, 2019 20:13:01

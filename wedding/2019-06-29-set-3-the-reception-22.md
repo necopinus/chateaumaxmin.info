@@ -4,4 +4,4 @@ Sylas Rigridge lays on the stage at [The Mercury Cafe](http://mercurycafe.com/) 
 
 - - - -
 
-📅 June 29, 2019 17:57:59
+<span aria-hidden="true">📅</span> June 29, 2019 17:57:59

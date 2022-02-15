@@ -4,4 +4,4 @@ Anne Cover, Shirls Gilmore, and Tessa Przybyski at Len Montgomery and Nathan Ack
 
 - - - -
 
-📅 June 29, 2019 20:18:03
+<span aria-hidden="true">📅</span> June 29, 2019 20:18:03

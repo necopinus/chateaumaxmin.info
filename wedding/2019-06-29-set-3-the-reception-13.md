@@ -4,4 +4,4 @@ Alex Acks, Corina Stark, Stephen Ulrich’s guest Hope, Stephen Ulrich, Krista S
 
 - - - -
 
-📅 June 29, 2019 17:44:02
+<span aria-hidden="true">📅</span> June 29, 2019 17:44:02

@@ -4,4 +4,4 @@ Corina Stark at Nathan Acks and Len Montgomery’s wedding reception. Alex Acks 
 
 - - - -
 
-📅 June 29, 2019 18:18:44
+<span aria-hidden="true">📅</span> June 29, 2019 18:18:44

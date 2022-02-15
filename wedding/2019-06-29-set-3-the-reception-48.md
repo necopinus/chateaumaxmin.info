@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery talk to Emily Magnaghi during their wedding recep
 
 - - - -
 
-📅 June 29, 2019 19:09:37
+<span aria-hidden="true">📅</span> June 29, 2019 19:09:37

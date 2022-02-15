@@ -4,4 +4,4 @@ Len Montgomery talks to Jasmine Chiang and the former’s wedding reception. Pho
 
 - - - -
 
-📅 June 29, 2019 19:35:44
+<span aria-hidden="true">📅</span> June 29, 2019 19:35:44

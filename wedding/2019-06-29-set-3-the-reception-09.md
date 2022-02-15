@@ -4,4 +4,4 @@ Andrea Lockard talks to Nathan Acks and Len Montgomery at their wedding receptio
 
 - - - -
 
-📅 June 29, 2019 17:34:19
+<span aria-hidden="true">📅</span> June 29, 2019 17:34:19

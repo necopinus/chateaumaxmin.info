@@ -4,4 +4,4 @@ Simon Vox calls the circle of wedding witnesses forward in Kevin Gilmore & Pam D
 
 - - - -
 
-📅 June 29, 2019 15:35:25
+<span aria-hidden="true">📅</span> June 29, 2019 15:35:25

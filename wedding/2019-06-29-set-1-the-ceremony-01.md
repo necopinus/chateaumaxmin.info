@@ -4,4 +4,4 @@ Len Montgomery and Nathan Acks get ready for their wedding in the basement of Ke
 
 - - - -
 
-📅 June 29, 2019 15:02:59
+<span aria-hidden="true">📅</span> June 29, 2019 15:02:59

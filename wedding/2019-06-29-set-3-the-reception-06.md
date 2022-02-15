@@ -4,4 +4,4 @@ Marit MacDonald and Harper Delattre talk to Len Montgomery at her wedding recept
 
 - - - -
 
-📅 June 29, 2019 17:32:39
+<span aria-hidden="true">📅</span> June 29, 2019 17:32:39

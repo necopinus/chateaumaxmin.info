@@ -4,4 +4,4 @@ The start of Nathan Acks and Len Montgomery’s wedding in Kevin Gilmore & Pam D
 
 - - - -
 
-📅 June 29, 2019 15:36:34
+<span aria-hidden="true">📅</span> June 29, 2019 15:36:34

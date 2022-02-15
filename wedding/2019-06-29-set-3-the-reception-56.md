@@ -4,4 +4,4 @@ Leah Whitesel, Ryen Schimerman, and Nathan Acks talk during the latter’s weddi
 
 - - - -
 
-📅 June 29, 2019 19:33:39
+<span aria-hidden="true">📅</span> June 29, 2019 19:33:39

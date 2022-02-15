@@ -4,4 +4,4 @@ Alex Acks shortly after Len Montgomery and Nathan Acks’ wedding. Photo taken b
 
 - - - -
 
-📅 June 29, 2019 16:03:45
+<span aria-hidden="true">📅</span> June 29, 2019 16:03:45

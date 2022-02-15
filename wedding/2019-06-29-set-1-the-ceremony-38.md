@@ -4,4 +4,4 @@ Nathan Acks and Len Montgomery kiss after signing their marriage license. Photo 
 
 - - - -
 
-📅 June 29, 2019 15:52:38
+<span aria-hidden="true">📅</span> June 29, 2019 15:52:38

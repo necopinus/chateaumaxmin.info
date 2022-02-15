@@ -4,4 +4,4 @@ Jasmine Chiang talks to Robyn Goodenow and Crystal Henry at Len Montgomery and N
 
 - - - -
 
-📅 June 29, 2019 17:48:12
+<span aria-hidden="true">📅</span> June 29, 2019 17:48:12

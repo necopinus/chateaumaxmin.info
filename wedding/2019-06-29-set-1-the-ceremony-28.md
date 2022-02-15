@@ -4,4 +4,4 @@ Nathan Acks takes his vows during his wedding to Len Montgomery. Photo taken by 
 
 - - - -
 
-📅 June 29, 2019 15:46:33
+<span aria-hidden="true">📅</span> June 29, 2019 15:46:33

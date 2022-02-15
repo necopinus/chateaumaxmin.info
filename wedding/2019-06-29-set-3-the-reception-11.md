@@ -4,4 +4,4 @@ Charles Neuman at Len Montgomery and Nathan Acks’ wedding reception. Photo tak
 
 - - - -
 
-📅 June 29, 2019 17:42:28
+<span aria-hidden="true">📅</span> June 29, 2019 17:42:28

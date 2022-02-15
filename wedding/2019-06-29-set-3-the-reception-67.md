@@ -4,4 +4,4 @@ Scaia Sprague eats strawberries during Nathan Acks and Len Montgomery’s weddin
 
 - - - -
 
-📅 June 29, 2019 19:50:15
+<span aria-hidden="true">📅</span> June 29, 2019 19:50:15

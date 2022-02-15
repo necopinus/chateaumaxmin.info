@@ -4,4 +4,4 @@ Rob Nicholls talks to Jen Vox and Simon Vox during Len Montgomery and Nathan Ack
 
 - - - -
 
-📅 June 29, 2019 18:20:49
+<span aria-hidden="true">📅</span> June 29, 2019 18:20:49

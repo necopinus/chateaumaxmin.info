@@ -4,4 +4,4 @@ Winston Vaughn talks to Len Montgomery at her wedding reception while Sylvia Bro
 
 - - - -
 
-📅 June 29, 2019 17:52:01
+<span aria-hidden="true">📅</span> June 29, 2019 17:52:01

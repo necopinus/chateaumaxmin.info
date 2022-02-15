@@ -4,4 +4,4 @@ Len Montgomery shortly after her wedding. Photo taken by [Carl Bower](http://car
 
 - - - -
 
-📅 June 29, 2019 16:01:31
+<span aria-hidden="true">📅</span> June 29, 2019 16:01:31
