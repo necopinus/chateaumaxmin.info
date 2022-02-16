@@ -1,6 +1,9 @@
 ![Nathan Acks and Len Montgomery talk to Marcia Eldridge](assets/89cd298d036cc694654417f18735b44c.webp)
 
-Nathan Acks and Len Montgomery talk to Marcia Eldridge during their wedding reception. Heather Kunst can be seen talking to other guests at her table in the foreground. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Nathan Acks and Len Montgomery talk to Marcia Eldridge during their wedding reception. Heather Kunst can be seen talking to other guests at her table in the foreground. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

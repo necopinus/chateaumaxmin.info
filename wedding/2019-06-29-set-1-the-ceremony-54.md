@@ -1,6 +1,8 @@
 ![The alter at Nathan Acks and Len Montgomery’s wedding](assets/cb298f41d35341ad0383feeb28d1daca.webp)
 
-The alter at Nathan Acks and Len Montgomery’s wedding. Photo taken in Kevin Gilmore and Pam Dayton’s backyard.
+The alter at Nathan Acks and Len Montgomery’s wedding. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s backyard.
+
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

@@ -1,6 +1,8 @@
 ![Len Montgomery talks to Tessa Przybyski](assets/e5f373f5e43731f148e4e686ca4e31ea.webp)
 
-Len Montgomery talks to Tessa Przybyski shortly after her wedding. Photo taken in Kevin Gilmore and Pam Dayton’s backyard.
+Len Montgomery talks to Tessa Przybyski shortly after her wedding. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s backyard.
+
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

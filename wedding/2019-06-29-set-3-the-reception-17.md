@@ -1,6 +1,9 @@
 ![Winston Vaughn talks to Len Montgomery](assets/c8d164f77bcf7096af28ae797ae9d5d8.webp)
 
-Winston Vaughn talks to Len Montgomery at her wedding reception while Sylvia Broude looks on. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Winston Vaughn talks to Len Montgomery at her wedding reception while Sylvia Broude looks on. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

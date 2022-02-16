@@ -1,6 +1,8 @@
 ![Nathan Acks and Len Montgomery exchange vows](assets/95e6b9a1633681212fa99c0ed5fd9c86.webp)
 
-Nathan Acks and Len Montgomery exchange vows during their wedding. Photo taken in Kevin Gilmore & Pam Dayton’s “stone circle”.
+Nathan Acks and Len Montgomery exchange vows during their wedding. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton’s “stone circle”.
+
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

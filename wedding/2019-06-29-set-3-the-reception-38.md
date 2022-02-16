@@ -1,6 +1,9 @@
 ![Dana Koziol laughs](assets/a252e094a611e9eadb174ba990ec255c.webp)
 
-Dana Koziol laughs while Jessie Voci and Ben Montgomery look on. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Dana Koziol laughs while Jessie Voci and Ben Montgomery look on. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

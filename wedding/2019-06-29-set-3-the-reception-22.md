@@ -1,6 +1,9 @@
 ![Sylas Rigridge lays on the stage at the Mercury Cafe](assets/c3dbcc72ca5d452c362df3275c55e74d.webp)
 
-Sylas Rigridge lays on the stage at [The Mercury Cafe](http://mercurycafe.com/) during Nathan Acks and Len Montgomery’s wedding reception.
+Sylas Rigridge lays on the stage at the Mercury Cafe during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

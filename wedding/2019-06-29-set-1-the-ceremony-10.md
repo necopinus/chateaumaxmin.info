@@ -1,6 +1,8 @@
 ![Nathan Acks and Len Montgomery just before their wedding](assets/f7ec7ad66c10fd296f778ea46d5017de.webp)
 
-Nathan Acks and Len Montgomery just before their wedding. Photo taken in Kevin Gilmore & Pam Dayton’s basement.
+Nathan Acks and Len Montgomery just before their wedding. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton’s basement.
+
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 
