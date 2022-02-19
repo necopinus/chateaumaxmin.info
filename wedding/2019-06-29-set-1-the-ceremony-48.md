@@ -1,6 +1,8 @@
 ![Alex Acks shortly after Len Montgomery and Nathan Acks’ wedding](assets/29183536f420192e1b96813aedd862cf.webp)
 
-Alex Acks shortly after Len Montgomery and Nathan Acks’ wedding. Photo taken in Kevin Gilmore and Pam Dayton’s backyard.
+Alex Acks shortly after Len Montgomery and Nathan Acks’ wedding. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s backyard.
+
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

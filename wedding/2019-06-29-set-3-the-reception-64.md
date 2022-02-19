@@ -1,6 +1,9 @@
 ![Len Montgomery laughs with Nathan Acks](assets/952ebfabdf904f048d73b87290a80bd9.webp)
 
-Len Montgomery laughs with Nathan Acks during Ryen Schimerman’s toast at their wedding reception. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Len Montgomery laughs with Nathan Acks during Ryen Schimerman’s toast at their wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

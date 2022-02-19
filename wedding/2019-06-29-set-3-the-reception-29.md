@@ -1,6 +1,9 @@
 ![Dana Koziol and Len Montgomery talk](assets/285f389dd3c026ecdec7f56f0113cf15.webp)
 
-Dana Koziol and Len Montgomery talk at the latter’s wedding reception. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Dana Koziol and Len Montgomery talk at the latter’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

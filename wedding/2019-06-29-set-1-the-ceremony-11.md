@@ -1,6 +1,8 @@
 ![Leah Whitesel talks to Len Montgomery and Nathan Acks](assets/26d339f4851fabc8c20092be6baa3b48.webp)
 
-Leah Whitesel talks to Len Montgomery and Nathan Acks shortly before their wedding. Photo taken in Kevin Gilmore & Pam Dayton’s basement.
+Leah Whitesel talks to Len Montgomery and Nathan Acks shortly before their wedding. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton’s basement.
+
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

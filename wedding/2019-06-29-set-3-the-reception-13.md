@@ -1,6 +1,9 @@
 ![Alex Acks, Corina Stark, Stephen Ulrich’s guest Hope, Stephen Ulrich, Krista Stone-Manista, Nathaniel Manista, and Mike Wells chat](assets/a24ce7fb9ebd7e007733c050ec377941.webp)
 
-Alex Acks, Corina Stark, Stephen Ulrich’s guest Hope, Stephen Ulrich, Krista Stone-Manista, Nathaniel Manista, and Mike Wells chat at Len Montgomery and Nathan Acks’ wedding reception. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Alex Acks, Corina Stark, Stephen Ulrich’s guest Hope, Stephen Ulrich, Krista Stone-Manista, Nathaniel Manista, and Mike Wells chat at Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

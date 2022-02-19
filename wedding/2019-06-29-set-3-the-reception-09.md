@@ -1,6 +1,9 @@
 ![Andrea Lockard talks to Nathan Acks and Len Montgomery](assets/b669d0a91b3c998a50092c08d6fd43a0.webp)
 
-Andrea Lockard talks to Nathan Acks and Len Montgomery at their wedding reception while Becky Stanfield and Andre Delattre look on. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Andrea Lockard talks to Nathan Acks and Len Montgomery at their wedding reception while Becky Stanfield and Andre Delattre look on. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

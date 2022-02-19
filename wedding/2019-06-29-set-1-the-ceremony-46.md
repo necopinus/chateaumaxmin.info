@@ -1,6 +1,8 @@
 ![Len Montgomery shortly after her wedding](assets/f4613cbd361d20112773713c6ed42019.webp)
 
-Len Montgomery shortly after her wedding. Photo taken in Kevin Gilmore and Pam Dayton’s backyard.
+Len Montgomery shortly after her wedding. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s backyard.
+
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

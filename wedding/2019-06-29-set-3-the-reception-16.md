@@ -1,6 +1,9 @@
 ![Robyn Goodenow talks with Crystal Henry](assets/7283b2b9f95050bfb43f7b429f419c4b.webp)
 
-Robyn Goodenow talks with Crystal Henry while Alan Scheer looks on. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Robyn Goodenow talks with Crystal Henry while Alan Scheer looks on. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

@@ -1,6 +1,9 @@
 ![Len Montgomery talks to Jasmine Chiang](assets/0cb2d47cffe476fed0c5c79314fe8078.webp)
 
-Len Montgomery talks to Jasmine Chiang and the former’s wedding reception. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Len Montgomery talks to Jasmine Chiang and the former’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

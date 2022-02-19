@@ -1,6 +1,9 @@
 ![Dana Koziol embraces Len Montgomery](assets/f1048f9db5e338c5bd3bdbe593fc5964.webp)
 
-Dana Koziol embraces Len Montgomery at the latter’s wedding reception while Betsy Starman looks on. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Dana Koziol embraces Len Montgomery at the latter’s wedding reception while Betsy Starman looks on. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

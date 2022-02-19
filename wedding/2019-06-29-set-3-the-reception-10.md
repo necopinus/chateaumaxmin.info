@@ -1,6 +1,9 @@
 ![Len Montgomery greets a guest at her wedding reception](assets/48dc55167a2ef35f8582beaa4e39feac.webp)
 
-Len Montgomery greets a guest at her wedding reception. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Len Montgomery greets a guest at her wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 

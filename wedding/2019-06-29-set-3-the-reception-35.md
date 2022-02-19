@@ -1,6 +1,9 @@
 ![Corina Stark at Nathan Acks and Len Montgomery’s wedding reception](assets/b5e7ca99d6ded8461ac1b7a01b12d91a.webp)
 
-Corina Stark at Nathan Acks and Len Montgomery’s wedding reception. Alex Acks can be seen in the background. Photo taken at [The Mercury Cafe](http://mercurycafe.com/).
+Corina Stark at Nathan Acks and Len Montgomery’s wedding reception. Alex Acks can be seen in the background. Photo taken by Carl Bower at the Mercury Cafe.
+
+* [The Mercury Cafe](http://mercurycafe.com)
+* [Carl Bower](https://carlbowerphotos.com)
 
 - - - -
 
