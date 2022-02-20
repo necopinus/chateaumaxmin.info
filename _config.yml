@@ -1,0 +1,71 @@
+# Gemfile-based plugins.
+#
+plugins:
+  - jekyll-titles-from-headings
+  - jekyll-optional-front-matter
+  - jekyll-relative-links
+  - jekyll-auto-image
+  - jekyll-readme-index
+
+# Some generic (non-standard) site settings.
+#
+name: Château MaxMin()
+description: Len & Nathan's home on the internet.
+url: https://chateaumaxmin.info
+icon: 9c35048e0af7829ceb7f1a95ba2a3509.webp
+cover: 260e569eadebcee104855dae44b26d0e.jpg
+author: Nathan Acks
+
+# Default image for the auto-image plugin (used in Twitter
+# Cards and Open Graph image tags.
+#
+image: /fba7e6008342eabe34a6f9ccad958b02.webp
+
+# Optional front-matter defaults.
+#
+optional_front_matter:
+  remove_originals: true
+
+# Readme index defaults:
+readme_index:
+  remove_originals: true
+
+# Per-page defaults.
+#
+defaults:
+  - scope:
+      path: README.md
+    values:
+      layout: homepage
+  - scope:
+      path: engagement.md
+    values:
+      layout: list
+  - scope:
+      path: wedding.md
+    values:
+      layout: list
+  - scope:
+      path: engagement
+    values:
+      layout: post
+  - scope:
+      path: wedding
+    values:
+      layout: post
+  - scope:
+      path: ""
+      type: pages
+    values:
+      layout: page
+  - scope:
+      path: ""
+      type: posts
+    values:
+      layout: post
+
+# Additional excludes.
+#
+exclude:
+  - package.json
+  - package-lock.json
