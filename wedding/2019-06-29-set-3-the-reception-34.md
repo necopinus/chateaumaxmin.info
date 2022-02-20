@@ -7,5 +7,5 @@ Sam Gilmore sticks her tongue out at Kiran Majid during Len Montgomery and Natha
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 18:14:01

@@ -7,5 +7,5 @@ Allison Rank and Toby Hurst chat with Stacey Hafner during Nathan Acks and Len M
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 18:04:12

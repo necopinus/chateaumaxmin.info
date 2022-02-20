@@ -7,5 +7,5 @@ Nathan Acks and Carolina Van Horn talk at the former’s wedding reception. Phot
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 18:38:54

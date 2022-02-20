@@ -7,5 +7,5 @@ Andrea Lockard and Susan Montgomery chat during Nathan Acks and Len Montgomery�
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 20:16:35

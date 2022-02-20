@@ -7,5 +7,5 @@ Anne Cover and Tessa Przybyski at Len Montgomery and Nathan Acks’ wedding rece
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 20:17:08

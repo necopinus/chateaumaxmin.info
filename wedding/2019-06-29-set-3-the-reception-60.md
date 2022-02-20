@@ -7,5 +7,5 @@ Leah Whitesel gives a toast at Nathan Acks and Len Montgomery’s wedding recept
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 19:42:53

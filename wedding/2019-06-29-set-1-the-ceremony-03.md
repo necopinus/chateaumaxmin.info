@@ -6,5 +6,5 @@ Len Montgomery and Nathan Acks goof off in the basement of Kevin Gilmore & Pam D
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 15:07:55

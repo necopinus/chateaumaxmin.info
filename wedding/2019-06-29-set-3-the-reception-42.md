@@ -7,5 +7,5 @@ Mo Kirk, Justine Barrone, and Faye Park talk during Len Montgomery and Nathan Ac
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 18:28:45

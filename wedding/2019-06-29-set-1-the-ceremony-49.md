@@ -6,5 +6,5 @@ Len Montgomery talks to Stephen Ulrich and his guest Hope shortly after her wedd
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 16:04:34

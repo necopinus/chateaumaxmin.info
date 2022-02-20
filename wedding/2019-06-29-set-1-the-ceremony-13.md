@@ -6,5 +6,5 @@ Nathan Acks meets Len Montgomery in the center of Kevin Gilmore & Pam Dayton’s
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 15:34:58

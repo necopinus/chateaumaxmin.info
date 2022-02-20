@@ -6,5 +6,5 @@ The start of Nathan Acks and Len Montgomery’s wedding in Kevin Gilmore & Pam D
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 15:36:34

@@ -6,5 +6,5 @@ Nathan Acks stands near one side of Kevin Gilmore & Pam Dayton’s back yard sho
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 15:32:08

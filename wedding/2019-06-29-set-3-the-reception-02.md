@@ -7,5 +7,5 @@ Len Montgomery and Nathan Acks about to greet the guests at their wedding recept
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 17:29:14

@@ -7,5 +7,5 @@ Len Montgomery hugs Dana Koziol during her wedding reception as Nathan Acks look
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 17:29:29

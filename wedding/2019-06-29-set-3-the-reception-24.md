@@ -7,5 +7,5 @@ Andy MacDonald, Chris Lindstrom, Len Montgomery, and Justine Barrone talk at Nat
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 17:59:31

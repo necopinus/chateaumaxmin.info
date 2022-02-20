@@ -7,5 +7,5 @@ Len Montgomery talking to guests at her wedding reception. Photo taken by Carl B
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 18:02:48

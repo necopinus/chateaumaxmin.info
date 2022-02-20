@@ -7,5 +7,5 @@ Nathan Acks and Len Montgomery talk to David Starman, Emily Magnaghi, and Jessie
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 19:10:35

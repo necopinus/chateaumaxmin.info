@@ -7,5 +7,5 @@ Sylas Rigridge gets ready to eat a cupcake while Nathan Acks and Len Montgomery 
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 19:50:22

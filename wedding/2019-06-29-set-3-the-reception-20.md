@@ -7,5 +7,5 @@ Alex Acks talks to Nathan Acks at his wedding reception. Photo taken by Carl Bow
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 17:54:58

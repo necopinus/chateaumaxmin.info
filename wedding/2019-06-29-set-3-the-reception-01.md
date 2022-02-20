@@ -7,5 +7,5 @@ Len Montgomery and Nathan Acks arrive at their wedding reception as Becky Stanfi
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 17:28:53

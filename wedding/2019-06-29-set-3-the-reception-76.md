@@ -7,5 +7,5 @@ Marit MacDonald and Harper Delattre pose on the Mercury Cafe’s stage at Nathan
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 20:13:01

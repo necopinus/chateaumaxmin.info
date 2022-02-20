@@ -7,5 +7,5 @@ Scaia Sprague, Sylas Rigridge, and Sarah Morrison play on the Mercury Cafe’s s
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 18:36:26

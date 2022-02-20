@@ -7,5 +7,5 @@ Sylas Rigridge reaches for a cupcake as Harper Delattre prepares to grab a deser
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 19:50:01

@@ -6,5 +6,5 @@ One of Len Montgomery and Nathan Acks’ formal wedding photos. Photo taken by C
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 16:38:04

@@ -7,5 +7,5 @@ Marit MacDonald, Harper Delattre, Josie Rigridge, and Scaia Sprague huddle on th
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 18:11:59

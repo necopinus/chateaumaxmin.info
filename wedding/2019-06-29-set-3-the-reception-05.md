@@ -7,5 +7,5 @@ Len Montgomery and Nathan Acks talk to Chris Lindstrom at their wedding receptio
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 17:31:57

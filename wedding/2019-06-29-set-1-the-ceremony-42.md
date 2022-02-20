@@ -6,5 +6,5 @@ Len Montgomery talking to guests after her wedding. Alex Acks and Yana Kucher ca
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 15:57:00

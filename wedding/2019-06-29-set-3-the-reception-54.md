@@ -7,5 +7,5 @@ Leah Whitesel and Ryen Schimerman talk while Jasmine Chiang and Jen Vox look on 
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 19:30:05

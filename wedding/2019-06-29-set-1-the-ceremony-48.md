@@ -6,5 +6,5 @@ Alex Acks shortly after Len Montgomery and Nathan Acks’ wedding. Photo taken b
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 16:03:45

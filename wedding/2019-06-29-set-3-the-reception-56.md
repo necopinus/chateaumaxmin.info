@@ -7,5 +7,5 @@ Leah Whitesel, Ryen Schimerman, and Nathan Acks talk during the latter’s weddi
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 19:33:39

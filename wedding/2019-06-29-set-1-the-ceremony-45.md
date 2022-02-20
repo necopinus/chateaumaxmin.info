@@ -6,5 +6,5 @@ Nathan Acks talks to Megan Fitzgerald and John Michael Watkins shortly after his
 
 - - - -
 
-<span aria-hidden="true">👥</span> Nathan Acks (content) & Carl Bower (photography)  
+<span aria-hidden="true">👥</span> Nathan Acks (text) & Carl Bower (photo)  
 <span aria-hidden="true">📅</span> June 29, 2019 16:00:58
