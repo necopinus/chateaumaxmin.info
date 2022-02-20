@@ -5,7 +5,7 @@
 
 ## Contact
 
-* [<span aria-hidden="true">📧</span> Email](mailto:nathan.acks@chateaumaxmin.info)
+* [<span aria-hidden="true">📧</span> Email](mailto:len.and.nathan@chateaumaxmin.info)
 
 - - - -
 
