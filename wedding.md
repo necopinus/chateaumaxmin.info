@@ -238,3 +238,8 @@
 * [2019-06-29 The Dance 22:57:23](wedding/2019-06-29-set-4-the-dance-95.md)
 * [2019-06-29 The Dance 22:57:39](wedding/2019-06-29-set-4-the-dance-96.md)
 * [2019-06-29 The Dance 22:58:00](wedding/2019-06-29-set-4-the-dance-97.md)
+
+- - - -
+
+<span aria-hidden="true">👤</span> Nathan Acks  
+<span aria-hidden="true">🏷️</span> #MOC

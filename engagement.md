@@ -27,3 +27,8 @@
 * [2018-07-17 Denver City Park #6](engagement/2018-07-17-set-3-denver-city-park-06.md)
 * [2018-07-17 Denver City Park #7](engagement/2018-07-17-set-3-denver-city-park-07.md)
 * [2018-07-17 Denver City Park #8](engagement/2018-07-17-set-3-denver-city-park-08.md)
+
+- - - -
+
+<span aria-hidden="true">👤</span> Nathan Acks  
+<span aria-hidden="true">🏷️</span> #MOC

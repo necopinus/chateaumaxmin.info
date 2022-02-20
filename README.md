@@ -6,3 +6,8 @@
 ## Contact
 
 * [<span aria-hidden="true">📧</span> Email](mailto:nathan.acks@chateaumaxmin.info)
+
+- - - -
+
+<span aria-hidden="true">👤</span> Nathan Acks  
+<span aria-hidden="true">🏷️</span> #MOC
