@@ -11,13 +11,13 @@ plugins:
 name: Château MaxMin()
 description: Len & Nathan's home on the internet.
 url: https://chateaumaxmin.info
-icon: 9c35048e0af7829ceb7f1a95ba2a3509.webp
-cover: 260e569eadebcee104855dae44b26d0e.jpg
+icon: avatar.webp
+cover: cover.jpg
 author: Nathan Acks
 
 # Default image page (used in Twitter Cards and Open Graph image tags).
 #
-image: /fba7e6008342eabe34a6f9ccad958b02.webp
+image: /banner.webp
 
 # Optional front-matter defaults.
 #
