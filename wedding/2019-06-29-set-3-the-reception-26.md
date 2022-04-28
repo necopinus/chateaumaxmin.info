@@ -1,4 +1,4 @@
-![Allison Rank and Toby Hurst chat with Stacey Hafner](assets/50f8144693ceda3f428b1283de429424.webp)
+![Allison Rank and Toby Hurst chat with Stacey Hafner](assets/2019-06-29-set-3-the-reception-26.webp)
 
 Allison Rank and Toby Hurst chat with Stacey Hafner during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

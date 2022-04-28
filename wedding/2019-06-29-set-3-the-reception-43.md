@@ -1,4 +1,4 @@
-![Sylas Rigridge works on a drawing](assets/47ba4ea979b6355cea075c9a0be81723.webp)
+![Sylas Rigridge works on a drawing](assets/2019-06-29-set-3-the-reception-43.webp)
 
 Sylas Rigridge works on a drawing at Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

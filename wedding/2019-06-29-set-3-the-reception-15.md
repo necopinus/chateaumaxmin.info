@@ -1,4 +1,4 @@
-![Crystal Henry at Len Montgomery and Nathan Acks’ wedding reception](assets/de9fe77ffc8747baaaaa1bc1579fdd95.webp)
+![Crystal Henry at Len Montgomery and Nathan Acks’ wedding reception](assets/2019-06-29-set-3-the-reception-15.webp)
 
 Crystal Henry at Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

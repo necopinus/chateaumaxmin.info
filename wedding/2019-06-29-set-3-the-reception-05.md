@@ -1,4 +1,4 @@
-![Len Montgomery and Nathan Acks talk to Chris Lindstrom](assets/683da0d22d8589e612c67e5739ab088d.webp)
+![Len Montgomery and Nathan Acks talk to Chris Lindstrom](assets/2019-06-29-set-3-the-reception-05.webp)
 
 Len Montgomery and Nathan Acks talk to Chris Lindstrom at their wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

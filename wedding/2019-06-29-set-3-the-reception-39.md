@@ -1,4 +1,4 @@
-![Dana Koziol embraces Susan Montgomery](assets/cc40080b52ba410a214d83b94f747367.webp)
+![Dana Koziol embraces Susan Montgomery](assets/2019-06-29-set-3-the-reception-39.webp)
 
 Dana Koziol embraces Susan Montgomery during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

@@ -1,4 +1,4 @@
-![Len Montgomery hugs Dana Koziol](assets/58d8df519ec4d645f04db43f6ac912a4.webp)
+![Len Montgomery hugs Dana Koziol](assets/2019-06-29-set-3-the-reception-03.webp)
 
 Len Montgomery hugs Dana Koziol during her wedding reception as Nathan Acks looks on. Photo taken by Carl Bower at the Mercury Cafe.
 

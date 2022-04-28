@@ -1,4 +1,4 @@
-![Patricia Acks and Sheldon Starman talk](assets/d4f8f93f1782c46717539e9053384ec6.webp)
+![Patricia Acks and Sheldon Starman talk](assets/2019-06-29-set-3-the-reception-30.webp)
 
 Patricia Acks and Sheldon Starman talk at Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

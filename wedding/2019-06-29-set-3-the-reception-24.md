@@ -1,4 +1,4 @@
-![Andy MacDonald, Chris Lindstrom, Len Montgomery, and Justine Barrone talk](assets/a17091d29639031820f939874dc8c4fa.webp)
+![Andy MacDonald, Chris Lindstrom, Len Montgomery, and Justine Barrone talk](assets/2019-06-29-set-3-the-reception-24.webp)
 
 Andy MacDonald, Chris Lindstrom, Len Montgomery, and Justine Barrone talk at Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

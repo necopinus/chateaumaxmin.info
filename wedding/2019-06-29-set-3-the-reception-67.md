@@ -1,4 +1,4 @@
-![Scaia Sprague eats strawberries](assets/c3e4c2887114e07fb71024a8094d95bd.webp)
+![Scaia Sprague eats strawberries](assets/2019-06-29-set-3-the-reception-67.webp)
 
 Scaia Sprague eats strawberries during Nathan Acks and Len Montgomery’s wedding reception. A very pleased Sylas Rigridge is behind her. Photo taken by Carl Bower at the Mercury Cafe.
 

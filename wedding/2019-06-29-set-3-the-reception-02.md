@@ -1,4 +1,4 @@
-![Len Montgomery and Nathan Acks about to greet the guests](assets/98120a475b95884fb32e40f838935d82.webp)
+![Len Montgomery and Nathan Acks about to greet the guests](assets/2019-06-29-set-3-the-reception-02.webp)
 
 Len Montgomery and Nathan Acks about to greet the guests at their wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

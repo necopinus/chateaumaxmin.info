@@ -1,4 +1,4 @@
-![Bonnie Clark and Len Montgomery talk](assets/a33b0aa49dfc0d60e89b1e1ad1ee9814.webp)
+![Bonnie Clark and Len Montgomery talk](assets/2019-06-29-set-3-the-reception-40.webp)
 
 Bonnie Clark and Len Montgomery talk at the latter’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

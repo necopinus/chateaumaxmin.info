@@ -1,4 +1,4 @@
-![Alex Acks talks to Nathan Acks](assets/bd5db53fba2b3edb963365307a65177a.webp)
+![Alex Acks talks to Nathan Acks](assets/2019-06-29-set-3-the-reception-20.webp)
 
 Alex Acks talks to Nathan Acks at his wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

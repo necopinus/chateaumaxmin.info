@@ -1,4 +1,4 @@
-![Sylas Rigridge reaches for a cupcake](assets/fb3e1ecba51e05daf531e93295ec79cf.webp)
+![Sylas Rigridge reaches for a cupcake](assets/2019-06-29-set-3-the-reception-65.webp)
 
 Sylas Rigridge reaches for a cupcake as Harper Delattre prepares to grab a desert as well during Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

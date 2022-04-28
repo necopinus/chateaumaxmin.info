@@ -1,4 +1,4 @@
-![Len Montgomery talks to Stephen Ulrich and his guest Hope](assets/5eab2fd6bb240c5f7a6d2ba9fc456b3e.webp)
+![Len Montgomery talks to Stephen Ulrich and his guest Hope](assets/2019-06-29-set-1-the-ceremony-49.webp)
 
 Len Montgomery talks to Stephen Ulrich and his guest Hope shortly after her wedding. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s backyard.
 

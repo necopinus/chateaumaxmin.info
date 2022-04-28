@@ -1,4 +1,4 @@
-![Marit MacDonald, Harper Delattre, Josie Rigridge, and Scaia Sprague huddle on the Mercury Cafe’s stage](assets/05b3805e961e3e2757a3d4b7ae87c338.webp)
+![Marit MacDonald, Harper Delattre, Josie Rigridge, and Scaia Sprague huddle on the Mercury Cafe’s stage](assets/2019-06-29-set-3-the-reception-31.webp)
 
 Marit MacDonald, Harper Delattre, Josie Rigridge, and Scaia Sprague huddle on the Mercury Cafe’s stage, while Sarah Morrison studies the crowd in the foreground. Photo taken by Carl Bower.
 

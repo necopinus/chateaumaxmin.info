@@ -1,4 +1,4 @@
-![Robyn and Shaun Goodenow at Len Montgomery and Nathan Acks’ wedding reception](assets/1f7f439cdf3711451b4cf0e8f64f5456.webp)
+![Robyn and Shaun Goodenow at Len Montgomery and Nathan Acks’ wedding reception](assets/2019-06-29-set-3-the-reception-41.webp)
 
 Robyn Goodenow and Shaun Goodenow at Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

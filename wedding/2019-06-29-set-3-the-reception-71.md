@@ -1,4 +1,4 @@
-![Sylas Rigridge eats a cupcake](assets/819f5b4656838a21e9645e0aae094e95.webp)
+![Sylas Rigridge eats a cupcake](assets/2019-06-29-set-3-the-reception-71.webp)
 
 Sylas Rigridge eats a cupcake during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

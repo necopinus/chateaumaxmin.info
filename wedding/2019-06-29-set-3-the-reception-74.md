@@ -1,4 +1,4 @@
-![Jyoti Jason-Miller changes Quill Jason-Wilcox’s diaper](assets/27b5dce3b1d81f277c54538865c18a9a.webp)
+![Jyoti Jason-Miller changes Quill Jason-Wilcox’s diaper](assets/2019-06-29-set-3-the-reception-74.webp)
 
 Jyoti Jason-Miller changes Quill Jason-Wilcox’s diaper outside of the Mercury Cafe during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower.
 

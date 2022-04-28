@@ -1,4 +1,4 @@
-![Nathan and Len standing in the back hallway of the Thin Man](assets/4505dc5a3f66a62d6ba27a0f538f8f17.webp)
+![Nathan and Len standing in the back hallway of the Thin Man](assets/2018-07-17-set-1-the-thin-man-07.webp)
 
 The Nathan Acks and Len Montgomery engagement photo-shoot. Taken at the Thin Man by Carl Bower.
 

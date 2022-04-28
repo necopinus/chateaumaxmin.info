@@ -1,4 +1,4 @@
-![Nathan Acks talks to Megan Fitzgerald and John Michael Watkins](assets/eabdc05f68380695c9765333b92c71ed.webp)
+![Nathan Acks talks to Megan Fitzgerald and John Michael Watkins](assets/2019-06-29-set-1-the-ceremony-45.webp)
 
 Nathan Acks talks to Megan Fitzgerald and John Michael Watkins shortly after his wedding. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s backyard.
 

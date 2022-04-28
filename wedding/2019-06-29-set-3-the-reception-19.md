@@ -1,4 +1,4 @@
-![Krista Stone-Manista talks to Ellen Montgomery](assets/8c369fba8537e0740d23225d6270c0ff.webp)
+![Krista Stone-Manista talks to Ellen Montgomery](assets/2019-06-29-set-3-the-reception-19.webp)
 
 Krista Stone-Manista talks to Len Montgomery at her wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

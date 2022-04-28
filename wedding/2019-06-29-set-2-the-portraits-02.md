@@ -1,4 +1,4 @@
-![One of the formal family photos from Len Montgomery and Nathan Acks’ wedding](assets/8b7a2e637a2d5d7478f83d4d262ba509.webp)
+![One of the formal family photos from Len Montgomery and Nathan Acks’ wedding](assets/2019-06-29-set-2-the-portraits-02.webp)
 
 One of the formal family photos from Len Montgomery and Nathan Acks’ wedding. From left-to-right: Patricia Acks, Andrew Acks, Nathan Acks, Mike Wells, Len Montgomery, and Alex Acks. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton’s backyard.
 

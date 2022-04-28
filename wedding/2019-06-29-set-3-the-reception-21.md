@@ -1,4 +1,4 @@
-![Patricia Acks at Nathan Acks and Len Montgomery’s wedding reception](assets/ec50cf0ecab938e7d7ba25b38647886e.webp)
+![Patricia Acks at Nathan Acks and Len Montgomery’s wedding reception](assets/2019-06-29-set-3-the-reception-21.webp)
 
 Patricia Acks at Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

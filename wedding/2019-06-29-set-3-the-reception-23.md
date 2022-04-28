@@ -1,4 +1,4 @@
-![Andy MacDonald, Chris Lindstrom, and Justine Barrone laugh](assets/f49203e868ed7e98a69ef6f99fe26735.webp)
+![Andy MacDonald, Chris Lindstrom, and Justine Barrone laugh](assets/2019-06-29-set-3-the-reception-23.webp)
 
 Andy MacDonald, Chris Lindstrom, and Justine Barrone laugh during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

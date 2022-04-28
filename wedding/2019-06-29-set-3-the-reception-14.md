@@ -1,4 +1,4 @@
-![Jasmine Chiang talks to Robyn Goodenow and Crystal Henry](assets/5b14082f0d42e625d1b7a9d6e9744258.webp)
+![Jasmine Chiang talks to Robyn Goodenow and Crystal Henry](assets/2019-06-29-set-3-the-reception-14.webp)
 
 Jasmine Chiang talks to Robyn Goodenow and Crystal Henry at Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

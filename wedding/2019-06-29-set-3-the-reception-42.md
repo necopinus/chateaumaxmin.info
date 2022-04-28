@@ -1,4 +1,4 @@
-![Mo Kirk, Justine Batone, and Faye Park talk](assets/935c68e3e258acc5517db79d2e5b9cbd.webp)
+![Mo Kirk, Justine Batone, and Faye Park talk](assets/2019-06-29-set-3-the-reception-42.webp)
 
 Mo Kirk, Justine Barrone, and Faye Park talk during Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

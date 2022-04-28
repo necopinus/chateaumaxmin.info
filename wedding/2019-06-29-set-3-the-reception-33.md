@@ -1,4 +1,4 @@
-![Kiran Majid waves a streamer at Sam Gilmore](assets/a084151d7a3c68063c1305509feced5a.webp)
+![Kiran Majid waves a streamer at Sam Gilmore](assets/2019-06-29-set-3-the-reception-33.webp)
 
 Kiran Majid waves a streamer at Sam Gilmore during Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

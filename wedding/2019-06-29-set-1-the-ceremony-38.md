@@ -1,4 +1,4 @@
-![Nathan Acks and Len Montgomery kiss](assets/a5bdbe61af95da3a787a7a4294137698.webp)
+![Nathan Acks and Len Montgomery kiss](assets/2019-06-29-set-1-the-ceremony-38.webp)
 
 Nathan Acks and Len Montgomery kiss after signing their marriage license. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s backyard.
 

@@ -1,4 +1,4 @@
-![Nathan Acks and Carolina Van Horn talk](assets/95aa672f822bcfc8339396f79844bc6f.webp)
+![Nathan Acks and Carolina Van Horn talk](assets/2019-06-29-set-3-the-reception-45.webp)
 
 Nathan Acks and Carolina Van Horn talk at the former’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

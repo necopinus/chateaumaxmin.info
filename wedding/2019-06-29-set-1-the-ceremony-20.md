@@ -1,4 +1,4 @@
-![Pam Dayton and Kevin Gilmore’s dog, Stella, disrupts Nathan Acks and Len Montgomery’s wedding](assets/b0eb1d99b5a2d00bc50a51228b3042ec.webp)
+![Pam Dayton and Kevin Gilmore’s dog, Stella, disrupts Nathan Acks and Len Montgomery’s wedding](assets/2019-06-29-set-1-the-ceremony-20.webp)
 
 Stella (Pam Dayton and Kevin Gilmore’s dog) disrupts Nathan Acks and Len Montgomery’s wedding. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s “stone circle”.
 

@@ -1,4 +1,4 @@
-![Andrea Lockard and Susan Montgomery chat](assets/05b2fb7dd5934b1230edb4550e006703.webp)
+![Andrea Lockard and Susan Montgomery chat](assets/2019-06-29-set-3-the-reception-77.webp)
 
 Andrea Lockard and Susan Montgomery chat during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

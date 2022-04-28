@@ -1,4 +1,4 @@
-![Len Montgomery and Nathan Acks exchange rings](assets/3090ddc658a82790d1a86c55e71bc55a.webp)
+![Len Montgomery and Nathan Acks exchange rings](assets/2019-06-29-set-1-the-ceremony-35.webp)
 
 Len Montgomery and Nathan Acks exchange rings during their wedding ceremony. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton’s “stone circle”.
 

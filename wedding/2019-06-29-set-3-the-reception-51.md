@@ -1,4 +1,4 @@
-![Stacey Hafner and Len Montgomery talk](assets/69600a81fbda8a291d6aa1ae6ea17c05.webp)
+![Stacey Hafner and Len Montgomery talk](assets/2019-06-29-set-3-the-reception-51.webp)
 
 Stacey Hafner and Len Montgomery talk during the latter’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

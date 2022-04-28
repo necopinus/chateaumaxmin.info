@@ -1,4 +1,4 @@
-![Marit MacDonald and Harper Delattre talk to Len Montgomery](assets/2f8cda5c27effaaf96b588d4204c488a.webp)
+![Marit MacDonald and Harper Delattre talk to Len Montgomery](assets/2019-06-29-set-3-the-reception-06.webp)
 
 Marit MacDonald and Harper Delattre talk to Len Montgomery at her wedding reception as Richard Seeman and Scot Weber look on. Photo taken by Carl Bower at the Mercury Cafe.
 

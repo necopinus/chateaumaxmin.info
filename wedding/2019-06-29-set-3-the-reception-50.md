@@ -1,4 +1,4 @@
-![Nathan Acks and Len Montgomery talk to David Starman, Emily Magnaghi, and Jessie Starman Voci](assets/8ed7b0c1fbe8708fba1c35b3090592a8.webp)
+![Nathan Acks and Len Montgomery talk to David Starman, Emily Magnaghi, and Jessie Starman Voci](assets/2019-06-29-set-3-the-reception-50.webp)
 
 Nathan Acks and Len Montgomery talk to David Starman, Emily Magnaghi, and Jessie Voci during their wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

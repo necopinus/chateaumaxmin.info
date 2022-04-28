@@ -1,4 +1,4 @@
-![Dana Koziol laughs](assets/a252e094a611e9eadb174ba990ec255c.webp)
+![Dana Koziol laughs](assets/2019-06-29-set-3-the-reception-38.webp)
 
 Dana Koziol laughs while Jessie Voci and Ben Montgomery look on. Photo taken by Carl Bower at the Mercury Cafe.
 

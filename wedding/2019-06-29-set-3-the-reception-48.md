@@ -1,4 +1,4 @@
-![Nathan Acks and Len Montgomery talk to Emily Magnaghi](assets/3c997320afbe86f75265996d1623f741.webp)
+![Nathan Acks and Len Montgomery talk to Emily Magnaghi](assets/2019-06-29-set-3-the-reception-48.webp)
 
 Nathan Acks and Len Montgomery talk to Emily Magnaghi during their wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

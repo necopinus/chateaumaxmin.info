@@ -1,4 +1,4 @@
-![One of Len Montgomery and Nathan Acks’ formal wedding photos](assets/cedada7b1e4a857a454006692f998052.webp)
+![One of Len Montgomery and Nathan Acks’ formal wedding photos](assets/2019-06-29-set-2-the-portraits-06.webp)
 
 One of Len Montgomery and Nathan Acks’ formal wedding photos. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton’s backyard.
 

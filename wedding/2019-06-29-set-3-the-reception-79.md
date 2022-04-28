@@ -1,4 +1,4 @@
-![Anne Cover and Tessa Przybyski](assets/0e4eba37e35aa6ad34a7a41401e9cf1a.webp)
+![Anne Cover and Tessa Przybyski](assets/2019-06-29-set-3-the-reception-79.webp)
 
 Anne Cover and Tessa Przybyski at Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

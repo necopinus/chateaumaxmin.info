@@ -1,4 +1,4 @@
-![The start of Nathan Acks and Len Montgomery’s wedding](assets/99ab1ef608e35b4dc96b50ba07ddfc6c.webp)
+![The start of Nathan Acks and Len Montgomery’s wedding](assets/2019-06-29-set-1-the-ceremony-15.webp)
 
 The start of Nathan Acks and Len Montgomery’s wedding in Kevin Gilmore & Pam Dayton’s “stone circle”. Photo taken by Carl Bower.
 

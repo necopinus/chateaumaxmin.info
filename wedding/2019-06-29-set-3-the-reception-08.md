@@ -1,4 +1,4 @@
-![Scot Weber and Nathan Acks embrace](assets/bb71483e65cc0df8c2b95d0a64bdec73.webp)
+![Scot Weber and Nathan Acks embrace](assets/2019-06-29-set-3-the-reception-08.webp)
 
 Scot Weber and Nathan Acks embrace while Len Montgomery talks to other guests during their wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

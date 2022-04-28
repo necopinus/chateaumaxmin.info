@@ -1,4 +1,4 @@
-![Robyn Goodenow talks with Crystal Henry](assets/7283b2b9f95050bfb43f7b429f419c4b.webp)
+![Robyn Goodenow talks with Crystal Henry](assets/2019-06-29-set-3-the-reception-16.webp)
 
 Robyn Goodenow talks with Crystal Henry while Alan Scheer looks on. Photo taken by Carl Bower at the Mercury Cafe.
 

@@ -1,4 +1,4 @@
-![Robyn Goodenow, Shaun Goodenow, and Nathan Acks talk](assets/92bc8fe8a1040d566dcca08cd7867a14.webp)
+![Robyn Goodenow, Shaun Goodenow, and Nathan Acks talk](assets/2019-06-29-set-3-the-reception-53.webp)
 
 Robyn Goodenow, Shaun Goodenow, and Nathan Acks talk at his wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

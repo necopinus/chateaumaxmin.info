@@ -1,4 +1,4 @@
-![Len Montgomery and Nathan Acks arrive at their wedding reception](assets/2f33f46cb2d69b91ff654e830cfe500f.webp)
+![Len Montgomery and Nathan Acks arrive at their wedding reception](assets/2019-06-29-set-3-the-reception-01.webp)
 
 Len Montgomery and Nathan Acks arrive at their wedding reception as Becky Stanfield, Stacey Hafner, and Andre Delattre look on. Photo taken by Carl Bower at the Mercury Cafe.
 

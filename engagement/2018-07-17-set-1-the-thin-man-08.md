@@ -1,4 +1,4 @@
-![Nathan and Len kiss in the back hallway of the Thin Man](assets/cc513b4c3c660f8b7a8008cae3dd475d.webp)
+![Nathan and Len kiss in the back hallway of the Thin Man](assets/2018-07-17-set-1-the-thin-man-08.webp)
 
 The Nathan Acks and Len Montgomery engagement photo-shoot. Taken at the Thin Man by Carl Bower.
 

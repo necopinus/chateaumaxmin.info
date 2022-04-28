@@ -1,4 +1,4 @@
-![Charles Neuman at Len Montgomery and Nathan Acks’ wedding reception](assets/3b5a067054e27ff6523cbf3dc1951b09.webp)
+![Charles Neuman at Len Montgomery and Nathan Acks’ wedding reception](assets/2019-06-29-set-3-the-reception-11.webp)
 
 Charles Neuman at Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

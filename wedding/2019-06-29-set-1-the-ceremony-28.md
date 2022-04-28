@@ -1,4 +1,4 @@
-![Nathan Acks takes his vows](assets/9562cb6eaf7f5abf689c6b125e43a618.webp)
+![Nathan Acks takes his vows](assets/2019-06-29-set-1-the-ceremony-28.webp)
 
 Nathan Acks takes his vows during his wedding to Len Montgomery. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton’s “stone circle”.
 

@@ -1,4 +1,4 @@
-![Scaia Sprague, Sylas Rigridge, and Sarah Morrison play on the Mercury Cafe’s stage](assets/6f19d9b450ebf588e4f051dd1ccec6fb.webp)
+![Scaia Sprague, Sylas Rigridge, and Sarah Morrison play on the Mercury Cafe’s stage](assets/2019-06-29-set-3-the-reception-44.webp)
 
 Scaia Sprague, Sylas Rigridge, and Sarah Morrison play on the Mercury Cafe’s stage at Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower.
 

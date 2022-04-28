@@ -1,4 +1,4 @@
-![Len and Nathan sitting on the grass in City Park](assets/f62c5564ebadfd17db48dbfcf1228e75.webp)
+![Len and Nathan sitting on the grass in City Park](assets/2018-07-17-set-3-denver-city-park-03.webp)
 
 The Nathan Acks and Len Montgomery engagement photo-shoot. Taken at Denver’s City Park by Carl Bower.
 

@@ -1,4 +1,4 @@
-![Len Montgomery and Nathan Acks talk to their mothers](assets/d435760d0f3395e5c1ec989b9c69daf2.webp)
+![Len Montgomery and Nathan Acks talk to their mothers](assets/2019-06-29-set-3-the-reception-46.webp)
 
 Len Montgomery and Nathan Acks talk to their mothers, Susan Montgomery and Patricia Acks, during their wedding reception. Betsy Starman and Sheldon Starman can be seen in the foreground. Photo taken by Carl Bower at the Mercury Cafe.
 

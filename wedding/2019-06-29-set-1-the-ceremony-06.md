@@ -1,4 +1,4 @@
-![Len Montgomery just before her wedding](assets/779a4d296728133f0a51504426441da8.webp)
+![Len Montgomery just before her wedding](assets/2019-06-29-set-1-the-ceremony-06.webp)
 
 Len Montgomery just before her wedding. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton’s basement.
 

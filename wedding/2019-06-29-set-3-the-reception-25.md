@@ -1,4 +1,4 @@
-![Len Montgomery talking to guests at her wedding reception](assets/0017c98866b78d8418b6e7cb8205badd.webp)
+![Len Montgomery talking to guests at her wedding reception](assets/2019-06-29-set-3-the-reception-25.webp)
 
 Len Montgomery talking to guests at her wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 

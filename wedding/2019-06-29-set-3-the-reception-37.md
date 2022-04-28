@@ -1,4 +1,4 @@
-![Tessa Przybyski, Anne Cover, and Shirls Gilmore talk](assets/942d5a87899cf3cc74efbaad5524fe05.webp)
+![Tessa Przybyski, Anne Cover, and Shirls Gilmore talk](assets/2019-06-29-set-3-the-reception-37.webp)
 
 Tessa Przybyski, Anne Cover, and Shirls Gilmore talk during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 
