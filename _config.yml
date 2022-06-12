@@ -11,6 +11,7 @@ plugins:
 name: Château MaxMin()
 description: Len & Nathan's home on the internet.
 url: https://chateaumaxmin.info
+logo: 💑
 icon: avatar.webp
 cover: cover.jpg
 author: Nathan Acks
