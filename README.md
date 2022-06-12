@@ -1,11 +1,11 @@
-# <span aria-hidden="true">🏡</span> Château MaxMin() <span aria-hidden="true">🏡</span>
+# Château MaxMin()
 
 * [Engagement Photos](engagement.md)
 * [Wedding Photos](wedding.md)
 
 ## Contact
 
-* [<span aria-hidden="true">📧</span> Email](mailto:len.and.nathan@chateaumaxmin.info)
+* [Email](mailto:len.and.nathan@chateaumaxmin.info)
 
 - - - -
 
