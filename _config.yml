@@ -12,13 +12,7 @@ name: Château MaxMin()
 description: Len & Nathan's home on the internet.
 url: https://chateaumaxmin.info
 logo: 💑
-icon: avatar.webp
-cover: cover.jpg
 author: Nathan Acks
-
-# Default image page (used in Twitter Cards and Open Graph image tags).
-#
-image: /banner.webp
 
 # Optional front-matter defaults.
 #
