@@ -4,7 +4,7 @@ photographer:: Carl Bower
 author:: Nathan Acks  
 date:: 2019-06-29 18:27:14
 
-Bonnie Clark and Len Montgomery talk at the latter’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+Bonnie Clark and Len Montgomery talk at the latter's wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 
 * [The Mercury Cafe](http://mercurycafe.com)
 * [Carl Bower Photos](https://carlbowerphotos.com)

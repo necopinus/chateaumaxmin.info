@@ -4,7 +4,7 @@ photographer:: Carl Bower
 author:: Nathan Acks  
 date:: 2019-06-29 20:18:03
 
-Anne Cover, Shirls Gilmore, and Tessa Przybyski at Len Montgomery and Nathan Acks’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+Anne Cover, Shirls Gilmore, and Tessa Przybyski at Len Montgomery and Nathan Acks' wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 
 * [The Mercury Cafe](http://mercurycafe.com)
 * [Carl Bower Photos](https://carlbowerphotos.com)

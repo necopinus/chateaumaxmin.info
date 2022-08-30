@@ -4,7 +4,7 @@ photographer:: Carl Bower
 author:: Nathan Acks  
 date:: 2019-06-29 19:16:02
 
-Stacey Hafner and Len Montgomery talk during the latter’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+Stacey Hafner and Len Montgomery talk during the latter's wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 
 * [The Mercury Cafe](http://mercurycafe.com)
 * [Carl Bower Photos](https://carlbowerphotos.com)

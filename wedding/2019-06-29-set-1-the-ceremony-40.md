@@ -4,6 +4,6 @@ photographer:: Carl Bower
 author:: Nathan Acks  
 date:: 2019-06-29 15:52:47
 
-Nathan Acks and Len Montgomery kiss after signing their marriage license. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton’s backyard.
+Nathan Acks and Len Montgomery kiss after signing their marriage license. Photo taken by Carl Bower in Kevin Gilmore and Pam Dayton's backyard.
 
 * [Carl Bower Photos](https://carlbowerphotos.com)

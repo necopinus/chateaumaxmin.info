@@ -4,7 +4,7 @@ photographer:: Carl Bower
 author:: Nathan Acks  
 date:: 2019-06-29 19:50:14
 
-Scaia Sprague eats strawberries while Sylas Rigridge attempts to make off with three cupcakes during Nathan Acks and Len Montgomery’s wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+Scaia Sprague eats strawberries while Sylas Rigridge attempts to make off with three cupcakes during Nathan Acks and Len Montgomery's wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 
 * [The Mercury Cafe](http://mercurycafe.com)
 * [Carl Bower Photos](https://carlbowerphotos.com)

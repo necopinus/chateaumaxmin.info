@@ -4,7 +4,7 @@ photographer:: Carl Bower
 author:: Nathan Acks  
 date:: 2019-06-29 19:46:29
 
-Len Montgomery laughs with Nathan Acks during Ryen Schimerman’s toast at their wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+Len Montgomery laughs with Nathan Acks during Ryen Schimerman's toast at their wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 
 * [The Mercury Cafe](http://mercurycafe.com)
 * [Carl Bower Photos](https://carlbowerphotos.com)

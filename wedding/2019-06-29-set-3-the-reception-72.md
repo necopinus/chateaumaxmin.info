@@ -4,7 +4,7 @@ photographer:: Carl Bower
 author:: Nathan Acks  
 date:: 2019-06-29 19:54:42
 
-Ryen Schimerman, Nathan Acks, and Len Montgomery at the latters’ wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
+Ryen Schimerman, Nathan Acks, and Len Montgomery at the latters' wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
 
 * [The Mercury Cafe](http://mercurycafe.com)
 * [Carl Bower Photos](https://carlbowerphotos.com)
