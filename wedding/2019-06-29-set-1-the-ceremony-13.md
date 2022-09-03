@@ -1,3 +1,5 @@
+# The Ceremony #13
+
 ![Nathan Acks meets Len Montgomery in Kevin Gilmore and Pam Dayton's "stone circle"](assets/2019-06-29-set-1-the-ceremony-13.webp)
 
 photographer:: Carl Bower  

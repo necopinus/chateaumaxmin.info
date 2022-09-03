@@ -1,3 +1,5 @@
+# The Ceremony #48
+
 ![Alex Acks shortly after Len Montgomery and Nathan Acks' wedding](assets/2019-06-29-set-1-the-ceremony-48.webp)
 
 photographer:: Carl Bower  

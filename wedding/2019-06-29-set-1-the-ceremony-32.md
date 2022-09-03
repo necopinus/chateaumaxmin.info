@@ -1,3 +1,5 @@
+# The Ceremony #32
+
 ![Len Montgomery and Nathan Acks exchange rings](assets/2019-06-29-set-1-the-ceremony-32.webp)
 
 photographer:: Carl Bower  

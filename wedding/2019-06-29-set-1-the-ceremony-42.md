@@ -1,3 +1,5 @@
+# The Ceremony #42
+
 ![Len Montgomery talking to guests after her wedding](assets/2019-06-29-set-1-the-ceremony-42.webp)
 
 photographer:: Carl Bower  

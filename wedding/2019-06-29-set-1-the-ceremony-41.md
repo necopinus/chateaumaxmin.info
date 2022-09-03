@@ -1,3 +1,5 @@
+# The Ceremony #41
+
 ![Nathan Acks and Len Montgomery after signing their marriage license](assets/2019-06-29-set-1-the-ceremony-41.webp)
 
 photographer:: Carl Bower  

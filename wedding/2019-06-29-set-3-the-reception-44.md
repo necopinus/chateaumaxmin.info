@@ -1,3 +1,5 @@
+# The Reception #44
+
 ![Scaia Sprague, Sylas Rigridge, and Sarah Morrison play on the Mercury Cafe's stage](assets/2019-06-29-set-3-the-reception-44.webp)
 
 photographer:: Carl Bower  

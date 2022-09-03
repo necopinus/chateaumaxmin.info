@@ -1,3 +1,5 @@
+# The Ceremony #47
+
 ![Len Montgomery shortly after her wedding](assets/2019-06-29-set-1-the-ceremony-47.webp)
 
 photographer:: Carl Bower  

@@ -1,3 +1,5 @@
+# The Reception #24
+
 ![Andy MacDonald, Chris Lindstrom, Len Montgomery, and Justine Barrone talk](assets/2019-06-29-set-3-the-reception-24.webp)
 
 photographer:: Carl Bower  

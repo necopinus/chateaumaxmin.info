@@ -1,3 +1,5 @@
+# The Reception #69
+
 ![Sylas Rigridge gets ready to eat a cupcake](assets/2019-06-29-set-3-the-reception-69.webp)
 
 photographer:: Carl Bower  

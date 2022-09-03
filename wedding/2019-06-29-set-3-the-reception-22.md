@@ -1,3 +1,5 @@
+# The Reception #22
+
 ![Sylas Rigridge lays on the stage at the Mercury Cafe](assets/2019-06-29-set-3-the-reception-22.webp)
 
 photographer:: Carl Bower  

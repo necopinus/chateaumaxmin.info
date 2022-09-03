@@ -1,3 +1,5 @@
+# The Ceremony #12
+
 ![Nathan Acks stands near one side of Kevin Gilmore and Pam Dayton's back yard](assets/2019-06-29-set-1-the-ceremony-12.webp)
 
 photographer:: Carl Bower  

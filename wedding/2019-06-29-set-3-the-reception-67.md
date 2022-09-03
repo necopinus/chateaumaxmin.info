@@ -1,3 +1,5 @@
+# The Reception #67
+
 ![Scaia Sprague eats strawberries](assets/2019-06-29-set-3-the-reception-67.webp)
 
 photographer:: Carl Bower  

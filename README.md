@@ -1,7 +1,9 @@
 # Château MaxMin()
 
-* [Engagement Photos](engagement.md)
-* [Wedding Photos](wedding.md)
+## Photos
+
+* [Engagement](engagement.md)
+* [Wedding](wedding.md)
 
 ## Contact
 

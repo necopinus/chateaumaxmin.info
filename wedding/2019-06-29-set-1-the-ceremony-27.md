@@ -1,3 +1,5 @@
+# The Ceremony #27
+
 ![Nathan Acks takes his vows](assets/2019-06-29-set-1-the-ceremony-27.webp)
 
 photographer:: Carl Bower  

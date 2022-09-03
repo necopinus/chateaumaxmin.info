@@ -1,3 +1,5 @@
+# The Ceremony #14
+
 ![Simon Vox calls the circle of wedding witnesses forward](assets/2019-06-29-set-1-the-ceremony-14.webp)
 
 photographer:: Carl Bower  

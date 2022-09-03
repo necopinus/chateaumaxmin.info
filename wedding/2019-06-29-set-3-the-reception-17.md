@@ -1,3 +1,5 @@
+# The Reception #17
+
 ![Winston Vaughn talks to Len Montgomery](assets/2019-06-29-set-3-the-reception-17.webp)
 
 photographer:: Carl Bower  

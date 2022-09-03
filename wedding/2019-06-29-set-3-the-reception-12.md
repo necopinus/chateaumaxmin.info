@@ -1,3 +1,5 @@
+# The Reception #12
+
 ![Alex Acks, Corina Stark, Stephen Ulrich's guest Hope, Stephen Ulrich, Krista Stone-Manista, Nathaniel Manista, and Mike Wells chat](assets/2019-06-29-set-3-the-reception-12.webp)
 
 photographer:: Carl Bower  
