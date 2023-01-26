@@ -1,12 +1,9 @@
-# The Reception #40
+# The Reception \#40
 
 ![Bonnie Clark and Len Montgomery talk](assets/2019-06-29-set-3-the-reception-40.webp)
 
-* **photographer**:: Carl Bower  
+* **photographer**:: [Carl Bower](https://carlbowerphotos.com)  
 * **author**:: Nathan Acks  
 * **date**:: 2019-06-29 18:27:14
 
-Bonnie Clark and Len Montgomery talk at the latter's wedding reception. Photo taken by Carl Bower at the Mercury Cafe.
-
-* [The Mercury Cafe](http://mercurycafe.com)
-* [Carl Bower Photos](https://carlbowerphotos.com)
+Bonnie Clark and Len Montgomery talk at the latter's wedding reception. Photo taken by Carl Bower at the [Mercury Cafe](http://mercurycafe.com).

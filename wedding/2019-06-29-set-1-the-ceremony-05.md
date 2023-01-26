@@ -1,11 +1,9 @@
-# The Ceremony #5
+# The Ceremony \#5
 
 ![Len Montgomery does her makeup](assets/2019-06-29-set-1-the-ceremony-05.webp)
 
-* **photographer**:: Carl Bower  
+* **photographer**:: [Carl Bower](https://carlbowerphotos.com)  
 * **author**:: Nathan Acks  
 * **date**:: 2019-06-29 15:08:59
 
 Len Montgomery does her makeup before her wedding. Photo taken by Carl Bower in Kevin Gilmore & Pam Dayton's basement.
-
-* [Carl Bower Photos](https://carlbowerphotos.com)
