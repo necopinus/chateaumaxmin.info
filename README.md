@@ -1,10 +1,3 @@
 # Château MaxMin()
 
-## Photos
-
-* [Engagement](engagement.md)
-* [Wedding](wedding.md)
-
-## Contact
-
-* [Email](mailto:len.and.nathan@chateaumaxmin.info)
+Landing page for <https://www.chateaumaxmin.info>.
